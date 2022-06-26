@@ -1,0 +1,4 @@
+- Hey, I'm Citimillz 
+- I'm a Game developer in the making, A Music artiste, A Crypto investor and A Social media Influencer
+- I help promote Cryptocurrency and Blockchain based projects 
+- You can reach me via @citimillzchamp on Twitter, @officialcitimillz on Instagram. My email address is Citimillz@yahoo.com
